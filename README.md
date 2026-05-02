@@ -1,0 +1,2 @@
+# -A-School-Community-of-Practice-Ecosystem-as-Structural-Implementation-of-Inclusive-STEM-Culture
+The GİKAL Communities Club (2026) is a pilot model hosting 350 students across 20 student-led communities. Operating alongside 16 standard clubs, it aims to democratize STEM engagement beyond a high-performing minority. The model serves as an institutional framework for inclusive STEM culture and personalized learning via diverse entry points.
